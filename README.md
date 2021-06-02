@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zongkertl
-- 👀 I’m interested in ...Finance and Fashion
+- 👀 I’m interested in ...Finance, Fashion, Reading, and Writing
 - 🌱 I’m currently learning ... C and Python
 - 📫 How to reach me ... TrinaZongker@gmail.com
 
